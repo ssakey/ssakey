@@ -3,7 +3,7 @@
 </p>
 
 <p align= "center">
-    RENTRY IS A WIP!!
+    𝘚𝘌𝘈𝘒𝘒𝘜
 </p>
 
 <p align="center">
